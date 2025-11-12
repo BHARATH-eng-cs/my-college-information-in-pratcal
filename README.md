@@ -1,0 +1,1 @@
+# my-college-information-in-pratcal
